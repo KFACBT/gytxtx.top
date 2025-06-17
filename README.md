@@ -1,0 +1,2 @@
+# gytxtx.top
+Redirect Page
